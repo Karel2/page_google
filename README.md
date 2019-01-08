@@ -1,0 +1,1 @@
+Voici ma copie de Google, tu peux la regarder ici : https://karel2.github.io/page_google/ ! J'ai bossé en pair-coding avec Emma Calvet et c'était très très cool ! Merci beaucoup !
